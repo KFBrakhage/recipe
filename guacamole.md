@@ -5,3 +5,4 @@ Ingredients
 
 Instructions
 -Kiss the onion
+-Chop onions
