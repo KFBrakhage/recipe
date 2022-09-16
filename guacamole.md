@@ -4,6 +4,6 @@ Ingredients
 -1 onion
 
 Instructions
--Kiss the onion
+-Kill the onion
 -Chop onions
--Apologize to onions
+-Throw away onions
